@@ -11,7 +11,7 @@
 
 ***下载地址***
 
-链接: https://pan.baidu.com/s/1tKhMt12Yer7QaybwoKgEBw 提取码: wmfw
+链接: https://pan.baidu.com/s/1tKhMt12Yer7QaybwoKgEBw 提取码: wmfw。也可以在本页面下载。
 
 ***AD***
 
